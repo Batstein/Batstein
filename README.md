@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Batstein
+- 👀 I’m interested in Engineering
+- 🌱 I’m currently an IB DP student
+- ⚡ Fun fact: Irrational fear of homelessness.
